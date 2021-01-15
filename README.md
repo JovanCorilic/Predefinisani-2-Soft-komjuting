@@ -1,0 +1,1 @@
+# Predefinisani-2-Soft-komjuting
